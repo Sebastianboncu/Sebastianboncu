@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Sebastianboncu
+- 👀 I’m interested in tech
+- 🌱 I’m currently working on Real Estate
